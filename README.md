@@ -18,4 +18,4 @@
 
 如果你也在寻找一个稳定、安全、丰富的日本AV资源站点，欢迎立即收藏本站，开启全新无负担的观影之旅。每天只需几分钟，即可获取你最感兴趣的资源更新。
 
-<span style="display:none;">[Canonical link](  ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/hk20250710/riben547 ）</span>
